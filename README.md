@@ -3,7 +3,7 @@ NFL Combine – Analyzing Drafted Wide Receivers 1999-2013<br>
 <hr>
 
 ## Complimenting NFL Police Breakdown -
-_After also experiencing College and NFL life with the Colts, I knew there was a big difference In-Season and Off-Season, especially with the 1-2 year guys._
+_This was conducted out of pure curiosity after my teammate, James Hardy, was found dead in a river in Indiana June 2017. After also experiencing College and NFL life with the Colts, I knew there was a big difference In-Season and Off-Season, especially with the 1-2 year guys. I felt like the Colts did a great job showing us financial responsibility, however, there could be some minor adjustments to make it even better like with anything else. When addressing the public matters, the only stress in regarding Off Season activities is be smart and show you past cases of what can happen. Here, I show the obvious spike in Off Season acitivity, but more interestingly, the Domestic Violence overcomes Drugs during this time. I believe there needs to be another outlet for the youngsters of the NFL because you really do think it won't happen to you and you have a massive influx in time. I believe organizations could cut down on Off Season activity and intervene more with Charity activities and other required services of the 1-2 year guys to keep them busy while doing positive for the organization. A stagnet mind is the devil's playground._
 
 ## Introduction
 
